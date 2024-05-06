@@ -12,4 +12,3 @@ Meu nome é Marcelo Paludetto
 
 ricardo@gmail.com
 
-![https://images.app.goo.gl/UMrroRshMM451UXa7](link)
