@@ -12,4 +12,4 @@ Meu nome é Marcelo Paludetto
 
 ricardo@gmail.com
 
-![https://upload.wikimedia.org/wikipedia/commons/8/8a/Purple-guy.gif](link)
+![https://images.app.goo.gl/UMrroRshMM451UXa7](link)
